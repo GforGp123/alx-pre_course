@@ -1,1 +1,1 @@
-my first readme
+omoo e choke
